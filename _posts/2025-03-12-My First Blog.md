@@ -1,4 +1,4 @@
-## Today is Mar.12.2025 I'm learning how to write a Blog.
+## Today is Mar.12.2025 I'm learning how to make a Blog.
 
 
  ```tsql
