@@ -1,4 +1,4 @@
-# Day 77 Dopamin is a time killer
+# Dopamin is a time killer
 This artical writed at the next day. Because I have stolen a beautiful by meself.
 Things begin from a game. Wild sile(The mobile phone's customer terminal of LOL, maybe it's a wrong spelling.)
 I tried to play one game for relax after I made some tasks done.
