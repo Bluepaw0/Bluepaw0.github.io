@@ -1,29 +1,31 @@
-# What I learned from basketball?
-## Teamwork and solo are both important
-I saw the game that Warroiors fail in the morning.
-The reason seems like didn't attach important to this match.
-In the end, the ball was shoot in by oppotent, turn out the winning team.
-Because of this, the Warroiors fall down to 7th. Meaning is there's big possible to play-in tournament.
-This is really a matter of life and death.
+# What I learned from playing basketball?
+## Both teamwork and individual skills are crucial in basketball
+This morning, I watched the Warriors lose their game. It seemed like they didn’t take the match seriously.
+In the end, the opponent made the winning shot, the Warroiors lost the game.
+Because of this, the Warriors dropped to 7th in the league standings.
+This means there’s a high chance they’ll have to compete in the play-in tournament. 
+It’s a crucial & danger situation for them.
 
-And in the afternoon, I also go out to play a basketball when I finish most of my assignments.
+In the afternoon, after finishing most of my assignments, I went out to play basketball.
 I have more skill and power to shoot in. But the result is not good.
-My shooting percentage is very low, just about 20%.
-In the second half of the game, I almost don't to shoot, but do many teamwork like set screens and pass the ball to make some oppotunities.
-It was work but not very well. Because of my weak shooting and offensive threat, the oppotents defent is small and it became a troble for my teammates.
+My shooting percentage was very low, only about 20%.
+In the second half of the game, I didn’t shoot much. 
+Instead, I focused on teamwork, like setting screens and passing the ball to create opportunities.
+It worked to some extent, but not very well. 
+Because of my weak shooting and lack of offensive threat, the opponents’ defense was less intense, which caused trouble for my teammates.
 
-Of couse we lost in the end, but there isn't mach of gap.
-If I have more shooting percentage and enhence my offensive threat. I beleve we must win.
+Of course, we lost in the end, but the gap wasn’t too big. 
+If I had a higher shooting percentage and improved my offensive threat, I believe we would have won.
 
-## What kind of man do I need to be?
-Back to work, I have more team sense but less personal ability.
-It's the biggest thing I think I must to change.
-If I want to win the battle, I can't merely sort out the logistics;
-I also must assume the responsibilities of a general.
+## What Kind of Player Do I Need to Become?
+When it comes to my game, I have a good sense of teamwork but need to work on my individual skills.
+This is the most important area I need to improve.
+To win games, I can’t just support my teammates——I also need to contribute more offensively.
 
-Nowadays, I can fell I get some improve of my target.
-I get ability body again by excercises regularly.
+Lately, I feel like I’ve made some progress toward my goals.
+I’ve regained my physical strength through regular exercise, and I'm gradually improving my English skills.
 And I enhance the English using ability.
-Although I still can't understand many articals and dialogues.I found that I got used to it.
-I hope in the next stage, I can continuously engage with reality and keep imprtoving myself
+Although I still struggle to understand many articles and conversations,I’ve noticed I’m getting more comfortable with it.
+In the next stage, I hope to keep improving and stay focused on my goals.
+
 Be focused like a laser, catch up with your own second cosmic velocity!
