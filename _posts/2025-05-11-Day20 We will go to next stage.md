@@ -10,7 +10,7 @@ It was so embarrssing and regretful that I could only play with them for one rou
 Maybe I'm not a luckey man, or my luck was used up saving my life.
 
 I am still bathered by my father, who wants to borrow money from me again.
-And I'm haven't brought back the money I lended to my high school classmate.
+And I'm haven't retrieved the money I lent to my high school classmate.
 It's not a small amount of money. I'm so naive to face society.
 
 Then I didn't answer the phone from my dad.
