@@ -1,29 +1,28 @@
 # The beginning of the second space velocity
 It's hard.
 
-I saw a sentense of that "if you didn't find the way you want to go, I wish you will have courage to begin again.
-The biggest thing today is that I submit my resume to DJI. It's a big company in China.
-The job is about produce film, I have some experience but I can't speak English fluently yet now.
+I came across a sentence that said: "If you haven't found the way you want to go, I wish you have the courage to begin again."
+The most significant thing I did today was submitting my resume to DJI, a major company in China. 
+The job involves film production, and while I have some experience, I can’t speak English fluently yet.
 
 But it's not totally bad for me.
-This job vacancy is prove that my judgement is right.
-English is important in our carreer and in this area.
-My leaning speed is not fast but I can feel the advencement.
-And now I have more vocabulary to use, the speed must go fater than before.
+This job opportunity is proof that my judgment was right.
+English is crucial for our careers, especially in this field.
+My learning speed isn’t fast, but I can feel the advancement.
+Now that I have a larger vocabulary, I should learn faster than before.
 
-And I also realize that HR who watched my resume was silence.
-Maybe my resume is bad which can't compete with each others.
-Or those people don't like my hometown, where I come from is a faraway province and it hasn't good education.
-The biggest reason is in myself. If I can do what I want to do, I will be success.
-But success is not easy, make things done are not easy too.
-I have't hate anybody even my dad who call me again tonight. 
+I also realized that the HR representative who reviewed my resume was silent.
+Maybe my resume isn’t competitive enough, or perhaps they have biases against my hometown, a remote province with limited educational resources.
+But the main issue lies within me. If I can achieve what I set out to do, I will be successful.
+Success isn’t easy, and getting things done is just as hard.
+I don’t hate anyone, not even my dad, who called me again tonight.
 
-Then the reason I create this Blog is for lighting.
-Let's think what can we do tomorrow?
-Today I finished 60% assignments, I still not focus on the most important thing.
-Tomorrow I will adjust a little my todo list and try to finish 80%.
+I created this blog for self-reflection.
+Let’s think about what we can do tomorrow.
+Today, I completed 60% of my assignments, but I still didn’t focus on the most important tasks.
+Tomorrow, I’ll make some adjustments to my to-do list and aim to finish 80%.
 
-I know more about what I really want to be.
-I want to development forever, not only output(for money) but also input(for growth).
-I wish that if I have a team or company, which will can do it.
-Keeping the balence is the key thing of the next stage for me.
+I’m gaining clarity about what I truly want to be.
+I want continuous development—not just focusing on output for financial gain but also on input for personal growth.
+I hope that if I ever have my own team or company, it will embody this balance.
+Maintaining that balance will be crucial for the next phase of my journey.
