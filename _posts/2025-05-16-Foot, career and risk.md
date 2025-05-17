@@ -1,21 +1,23 @@
-# Foot, career and risk
-As I said in blog before, I twiked my angle in a baskitable last week.
-Now, it's still edema. I have to pick up my walking stick again.
-It make me sad and recognize that if you in poor station you will get more risk.
-Once you get injure you won't work, and hard to live even it needn't go to the hospital.
+# Foot, Career, and Risk
 
-Risk is huge important in poor or ordinary person's life.
-These works I was read from book, but I didn't feeling with it until this time.
-I'm so graceful for this period I suffer.
-I learned a lot, I can walk on the ground again. And I still insist my direction, move forward a little per day.
+As I mentioned in my blog before, I twisted my ankle in a basketball game last week. 
+Now, it’s still swollen. I have to use my walking stick again. 
+It makes me sad and realize that if you’re in a poor situation, you face more risks. 
+Once you get injured, you can’t work, and it’s hard to live even if you don’t need to go to the hospital.
 
-I have the ability to re-distribute my energy.
-And I 'm doing my first contant product.
-Maybe I'll always be a small man in whole life, but I'll try to make my idea done, just make it happen.
+Risk is hugely important in a poor or ordinary person’s life. 
+These ideas I read in a book, but I didn’t connect with them until now. 
+I’m so grateful for this period I’ve suffered.
+I learned a lot, and I can walk on the ground again. 
+And I still stick to my direction, moving forward a little each day.
 
-The road of the cycling tell me that if you want go forward, every step will be hard.
-I like the feeling what I'm still trying, if I'm not, I will go die.
-Find the way you want to go, and solving sth. create sth.
+I have the ability to redistribute my energy. 
+And I’m working on my first content product. 
+Maybe I’ll always be an insignificant person in my whole life, but I’ll try to realize my ideas, just make them happen.
 
-Life will going well, you still have dream.
+Cycling on the road tells me that if you want to go forward, every pedal is hard. 
+I like the feeling that I’m still trying; if I’m not, I will die. 
+Find the way you want to go, solve something, create something.
+
+Life will go well as long as you still have a dream. 
 Make it happen.
