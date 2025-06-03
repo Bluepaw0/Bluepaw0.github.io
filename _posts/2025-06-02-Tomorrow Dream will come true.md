@@ -1,30 +1,30 @@
 # Tomorrow dream will come true! My dream job
-I don't know how to say it.
-I am in excited moment these days.
-I give myself 180 days after I quit my job.
-When I almost give up, the oppotunite find me. I just have 3 days then.
+I don’t know how to express it. I have been very excited these days. 
+After quitting my job, I gave myself 180 days to achieve my goals. 
+Just when I was about to give up, an opportunity found me, and I only had three days left.
 
-I remember that the first day I come to Hangzhou was went to the company by bus.
-Hangzhou is a big and beautiful city, but a little strange.
+I remember that on the first day I came to Hangzhou, I went to the company by bus.
+Hangzhou is a big and beautiful city, but it felt a little strange to me.
 I walking though these tall buildings and dream town.
-Thinking about that someday I will go to YSJF which help me learn a lot.
+I walked through the tall buildings and the dream town, thinking about how someday I would go to YSJF, which has helped me learn a lot.
 
-Tomorrow I finally have the oppotunity to have a meeting test.
-I think it is not very difficult for me now.
-It's like a magic and I can join the magic factory after 3.5 years.
+Tomorrow, I finally have the opportunity to take an interview.
+I think it won’t be very difficult for me now.
+It’s like magic, and after 3.5 years, I can join the magic factory.
 
-The direction is most important as the today's video of Tim said.
-I found I wasn't attacted my iedal goal but I still get much advance.
-And I can say unlimited progress loudly. Oh, I haven't pass the meeting test.
-I must think the different half year, it makes me grow up more.
-Win or loss, I go forward a lot.
+As Tim said in today’s video, direction is the most important thing.
+I found that even though I wasn’t attached to my ideal goal, I still made significant progress.
+And I can confidently say that I have made unlimited progress.
+Oh, I haven’t passed the interview yet.
+I must reflect on the past half year, which has helped me grow a lot.
+Whether I win or lose, I have progressed a lot.
 
 Finally, I hope I can reach my OKR of next 5 years.
-It will solve a lot my home problems.
-Fail is not a bad thing, I have more perseverance in view of my circumstances.
-Sometimes the life is bitter, but don't give up.
-I'm sure I will be stronger than before.
+It will solve many of my home problems.
+Failure is not a bad thing; it gives me more perseverance given my circumstances.
+Sometimes life is bitter, but I won’t give up.
+I’m sure I will be stronger than before.
 
-The world is hard but it's beautiful & interesting too.
-As the old words, keep going the goal will come for you.
+The world is hard, but it’s also beautiful and interesting.
+As the old saying goes, “Keep going, and the goal will come to you.”
 Good luck, see you tomorrow.
