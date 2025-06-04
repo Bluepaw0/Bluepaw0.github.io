@@ -1,28 +1,29 @@
 # An interview of medium level
-I don't remember when I go to join a interview.
-At least I talking with the bike owner before.
-It's a practice but there's not very uesful in this interview.
+I don’t remember when I went to join an interview.
+At least I talked with the bike brand owner before.
+It was practice, but it wasn’t very useful for this interview.
 
-Although it was not fallow my heart, but I still learned more things.
-I did wear the colorful glasses before.
-Things are people doing. I am looking forward to another stage, but work is work.
+Although it didn’t follow my heart, I still learned many things.
+I used to wear colorful glasses, but now I see that things are done by people too.
+I am looking forward to another stage, but work is work.
 
-The job needs a man/woman who most suitable for it.
-So if I really want to change sth. maybe I just fallow myself in the end.
-Now, let's think about if the job don't like me.
-Than what I can do, and what I will become.
+The job needs a person who is most suitable for it.
+So if I really want to change something, maybe I just need to follow myself in the end.
+Now, let’s think about if the job doesn’t suit me. 
+Then what can I do, and what will I become?
+I'm living for the job? No!
 
-As hope as high, as drop as more.
-I don't like this feeling, if I really fail in this place.
-I will stand up quickly and drop the dust, than go forward with more confidence.
+The higher the hope, the greater the fall.
+I don’t like this feeling. 
+If I really fail in this place, I will stand up quickly, brush off the dust, and then go forward with more confidence.
 
-Because people haven't so much different with each other.
-Is the most different choise?
-Shit, don't waste the true heart. Fellow my heart.
-Find the true value, find myself in this journey.
+Because people aren’t so different from each other.
+Is it the choices that make the most difference?
+Damn, don’t waste your true heart. Follow your heart.
+Find the true value, find yourself in this journey.
 
-Don't always ues this word "wish".
-Do some useful thing, maybe someday I can build my own campany.
-Is it that I'm just like a sword drawn from its sheath now?
+Don’t always use the word “wish”.
+Do something useful; maybe someday I can build my own company.
+Is it that I’m just like a sword drawn from its sheath now?
 "Good swords are always kept in their sheaths."
 Maybe I don't understand this sentence yet.
