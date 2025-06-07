@@ -1,31 +1,29 @@
 # The message of intertview supplement
-May I have so many thinking of that?
-I tell you that I don't have the confidence of the interview.
-Until yesterday, I was invited a dinner meeting.
-I'm not used to be a man who is happy to receive or change the information from others.
-But neardays I found myself become a man who is happy to listen and talk to another person.
+I’ve been overthinking a lot lately.
+I don’t feel very confident about the pass of interview.
+Until yesterday, I was invited to a dinner meeting.
+I’m not used to being someone who enjoys exchanging information with others.
+However, recently, I’ve noticed myself becoming more open to listening and talking with others.
 
-I should learn from my wife, who is go to dance regularly.
-I always be anxiety neardays, if I don't trust myself then who will trust you.
-The target I give myself is less I think.
-The good way is keep going and form a habit.
+I should learn from my wife, who regularly goes dancing.
+Lately, I’ve been feeling anxious. If I don’t trust myself, who will?
+The goals I’ve set for myself seem too small. 
+The best approach is to keep moving forward and build good habits.
 
-Everytime I always say those right words but didn't do the real practice.
-It's strange that you can see something and learn something but can't do those things.
-Talking but without doing is nothing.
-The methodology is not very useful. The best way is to do it and looking for the direction with work.
+I often say the right words but fail to put them into practice.
+It’s strange how you can understand something and learn it but struggle to act on it.
+Talking without action is meaningless.
+Methodology alone isn’t very useful. The best way is to take action and find direction through effort.
 
-I hope YSJF will see my good faith but I also know that I'm not very suitable with this job.
-This is a door, now I'm wandering before it.
-I have confidence after yesterday, I was talk with two other coworkers.
-I found many coworkers like to work with me. I did recieve some invitations.
-But I also found that I'm right to quite my job, and waiting for YSJF's interview.
-Trust myself and put the resources consistantly.
-One day, you will across the mountain.
+I hope YSJF will recognize my sincerity, but I also know I may not be the best fit for this job.
+This opportunity feels like a door, and I’m standing hesitantly in front of it.
+After yesterday’s conversation with two coworkers, I feel more confident.
+I realized that many coworkers enjoy working with me, and I’ve received several invitations.
+This confirms that quitting my current job was the right decision, and now I’m waiting for YSJF’s interview.
+I need to trust myself and consistently invest effort. One day, I will overcome these challenges.
 
-Back to the title, I write a small document to YSJF, the company I want to go.
-In this essay, I told them about my working and learning truth during university to this year.
-Maybe I will fail again and be a strange man in other people's eyes.
-But will I care that? The answer is no!
-Win or lose both will make me go forward.
-Once I start moving forward, the best view will waiting for you.
+Returning to the title, I wrote a short document for YSJF, the company I want to join.
+In this essay, I shared my work and learning experiences from university to the present.
+I might fail again and seem strange in others’ eyes, but do I care? No!
+Whether I win or lose, both outcomes will push me forward.
+Once I start moving, the better views will await me.
