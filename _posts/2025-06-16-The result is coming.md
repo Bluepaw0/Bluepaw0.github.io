@@ -1,43 +1,42 @@
 # The result is coming
-I learned a lot in this period. It costs above a half year to make me realize it.
-I don't know how to catch the most important need when I take this interview.
-As many times I didn't do the right thing.
-When I was in learning age I was gaming and joyful guy.
-When I shouldn't trust people, I trust them and lose about ¥60,000.
-And this time nobody knows me is a person who want to achieve something with team.
-Thought am I show my hamble too much without trust which come from those behieves of before.
-I'm stupid man who open my mind at first.
-Will the honest man eat shit in the beginning, peocessing and ending?
+I’ve learned a lot during this period.
+It took me over half a year to realize certain things. 
+I still don’t know how to identify the most important needs when preparing for an interview. 
+Too many times, I’ve failed to do the right thing.
 
-Today is the day after I finished the interview 10 days later.
-There is no feedback from the department boss.
-What can I do? I sent two documents to HR and she help me to transform to department boss.
-And I put myself down as much as I can do.
-I said that "If I can't do well you can fire me quickly in early era".
-Maybe I will get the worst information from the phone ring.
-Maybe sometimes the message will tell me I finally fail.
-Maybe I can't recieve any message from Yijun anymore.
+When I was younger, during my learning years, I was a carefree, gaming enthusiast.
+When I shouldn’t have trusted people, I did, and I lost about ¥60,000.
+Now, it feels like no one sees me as someone who wants to achieve something meaningful with a team.
+Perhaps I’ve shown too much humility without building trust, a result of my past experiences.
+I’ve been naive, opening my heart too quickly.
+Does an honest person always face hardship at the start, in the process, and at the end?
 
-But I still have some rewards, maybe fail is not the worst thing.
-The worst thing is I have't the courague for this direction.
-The result pick me up that I still can follow the direction from deep-thinking.
-I believe that thinking is a important job for company.
-To make some strateges and make them working, you can get 2 times reward.
+Today is ten days after my interview, and I still haven’t received feedback from the department boss. 
+I sent two documents to HR, and she forwarded them to the boss.
+I downplayed myself as much as I could during the interview, even saying, “If I don’t perform well, you can fire me early on.”
+I’m bracing for bad news—a phone call or message telling me I’ve failed. 
+Maybe I won’t hear from Yijun at all.
 
-But as a realisted and a idealisted man, should I feed my self and home first?
-And try me best to do some wanderful things.
-It's seems like good and useful.
-But I trust more about if you want do a thing, you should do it well.
-It's named focus and it's from Steve Jobs and Elon Musk I think.
-"Why you waste time to do those shit job?"
-Am I just talking for happy? 
-Is it I can't afford those operation fees, that I become a joker. 
-Post some idealistic things in friend's circle.
+Still, there are some silver linings. Failure isn’t the worst outcome. 
+The worst would be lacking the courage to pursue my direction. 
+This experience has shown me I can still follow my path through deep thinking. 
+I believe strategic thinking is critical for any company. 
+By crafting and executing effective strategies, you can achieve twice the reward.
 
-It's a remarkeble memory which happened in my 27.
-I will be 28 years old two monthes later.
-I still have a little dream that I want to make a company to do some valueble things.
-YOLO, you only live one time.
-When I think about that I always remind myself people will go die, I was proud about what I'm doing rather then what I'm using.
-Use conststant envolve technolege and besiness mode to make wonderful and cheerful contant products.
-I believe it and I want to achieve it.
+As both a realist and an idealist, should I prioritize providing for myself and my family first? 
+Should I strive to do remarkable things? 
+It seems like a practical and meaningful balance. 
+But I firmly believe that if you want to do something, you should do it well.
+This idea of focus comes from people like Steve Jobs and Elon Musk. 
+“Why waste time on meaningless work?” 
+Am I just talking big to feel good? 
+Am I joking because I can’t afford the costs of pursuing my dreams?
+I post idealistic thoughts in my friend circle, but are they just words?
+
+This is a remarkable memory from my 27th year. 
+In three months, I’ll turn 28.
+I still hold a small dream of starting a company to create something valuable. 
+YOLO—you only live once. 
+When I think about mortality, I remind myself to take pride in what I’m making, not just what I’m using. 
+"Continuously create touching content products through iterative technologies and business models."
+I believe in this vision, and I’m determined to achieve it.
