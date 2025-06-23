@@ -1,29 +1,29 @@
 # I walk to Linying temple
-Today I got up early, and went to a famous temple of Hangzhou Linying temple.
-I and my wife went there by e-motor, when we almost get there, we followed the way of most people travelling.
-So we turned to another direction and went to mountain before the temple.
+Today, I got up early and went to the famous Linying Temple in Hangzhou.
+My wife and I traveled there by electric motorbike.
+As we were almost there, we followed the path most people were taking.
+However, we decided to turn in another direction and went to the mountain before the temple.
 
-We were curious at beginning but as time goes by, we got hot and wet in about 36 cecious degrees.
-And the road is so hard like a cliff, a lot of people climb this mountain but always be hard and bitter face.
-I climbde slowly than before, the one reason is I was get a cold, other is I realised I needn’t compete anything with people.
+We were curious at the beginning, but as time passed, we became hot and sweaty in the approximately 36-degree Celsius heat.
+The road was very challenging, almost like a cliff, and many people were climbing the mountain with difficult and bitter expressions.
+I climbed more slowly than before; one reason was that I had a cold, and the other was that I realized I didn’t need to compete with anyone.
 
-We passed three temples and we went in all of them.
-We pick up three xiang and prey some wishes then put them to the burn place.
-Finally we arrieved at the Linying temple, but Ya didn't follow with me because of tickets cost(We want to save money).
+We passed three temples and visited all of them.
+In each, we picked up three incense sticks, made some wishes, and then placed them in the burning area.
+Finally, we arrived at Linying Temple, but Ya didn’t come with me because of the ticket cost (we wanted to save money).
 
-When I walked in the temple, I was amazied again.
-I saw a lot of scenes than before, I got there twice but this time I take my heart.
-I enjoy and prey in every efigy, I found many detail those I never consided.
-As same as life, I had an oppotunity to saw myself without anything.
-It's the best job for me, look myself just by myself.
+When I walked into the temple, I was amazed again.
+I saw many more scenes than before; I had been there twice, but this time I truly engaged with my heart.
+I enjoyed and prayed at every effigy,noticing many details I had never considered before.
+Just like in life, I had an opportunity to see myself without any distractions.
+It was the best experience for me—to look at myself just by myself.
 
-Where ever I growed up before, where ever I traveled before, what ever I did before.
-I had a pure heart at that moment.
-Now I try to taste it, it's like my jouney of cycling in tiblet.
-Oh, it's so diferrent it's so calm.
-There's no competiters there's no strees there is nature with yourself.
+Wherever I grew up, wherever I traveled, whatever I did before, at that moment, I had a pure heart.
+Now, as I try to savor it, it’s reminiscent of my journey cycling in Tibet.
+Oh, it’s so different; it’s so calm.
+There are no competitors, no stress; there is just nature and yourself.
 
-I don't see those things as my rewords, I see them as a part of my life.
-Every memories I have, every oppotunites I might have, there are also is a part of my life.
-Tomorrow has high possible to be the END day.
-I got more mature, I wish it will happen.
+I don’t see those things as my rewards; I see them as part of my life.
+Every memory I have, every opportunity I might have—they are also part of my life.
+Tomorrow could very well be the end day.
+I have become more mature,and I hope it will happen.
